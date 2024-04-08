@@ -1,4 +1,4 @@
 @Tr1tanium (Tritanium)
 
-  - She/Her
-  - Python, C#
+  Pronouns: She/Her
+  I know: Python, C#
