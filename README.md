@@ -1,4 +1,4 @@
-![the perfect-er blahaj png](https://github.com/Tr1tanium/Tr1tanium/assets/163223475/2d23894d-7182-4959-ac53-b3a2abfcd658)
+![the perfect-er-er blahaj png](https://github.com/Tr1tanium/Tr1tanium/assets/163223475/2944264b-70ca-434c-ac41-fd967ed60dff)
 # Hey, I'm Tritanium!
 **- Silly trans girl! (she/her)**
 
