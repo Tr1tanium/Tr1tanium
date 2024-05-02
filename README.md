@@ -2,4 +2,4 @@
 # Hey, I'm Tritanium!
 **- Silly trans girl! (she/her)**
 
-**- I know, Python, learning C#**
+**- I know, Python, HTML, CSS, and Javascript. (learning C#)**
