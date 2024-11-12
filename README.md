@@ -1,6 +1,5 @@
-# Hey, I'm Tritanium!
-**- silly transfem! (she/her)**
+# Hey, I'm Tritanium! (she/her/hers) and I'm:
+**a VR enthusiast!**
+**an FPV Pilot**
 
-**- VR enthusiast**
-
-**- I know, Python, Lua, HTML, CSS, and Javascript. (learning C#)**
+**And I know: Python, Lua, HTML, CSS, C#, C++, and Javascript!**
